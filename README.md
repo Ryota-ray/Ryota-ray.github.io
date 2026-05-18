@@ -1,1 +1,1 @@
-# Ryota-ray.github.io
+# Ryota.github.io
