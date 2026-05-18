@@ -1,2 +1,2 @@
 # Ryota.github.io
-Hi, my name is Ryota, an MA student in Learning Sciences & Educational Psychology @ University of Iowa.
+I am pursuing my MA in Learning Sciences & Educational Psychology in the College of Education while working as a Graduate Teaching Assistant in the Japanese Program. I had been trained in Cognitive Psychology in Waseda University. My research interests lie in cognitive learning strategies, epistemic affect, and second language acquisition.
